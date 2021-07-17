@@ -1,1 +1,1 @@
-core_deskbell ESX to QBCore Framework converted -- ! fishy™ or dieegoo.ssj
+core_deskbell ESX to QBCore Framework converted -- Ｄｉｚｚｙ#1660
